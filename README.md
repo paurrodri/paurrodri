@@ -7,7 +7,7 @@
 
 - 🙋🏼 Pronouns: she/her
 
-- 💬 Ask me about (non-work): winter bathing, kombucha brewing, kizomba dancing
+- 💬 Ask me about *(non-work)*: winter bathing, kombucha brewing, kizomba dancing
 
 - 📫 How to reach me: p.rodriguezgar@hotmail.com
 
