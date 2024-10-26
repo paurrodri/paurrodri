@@ -9,4 +9,4 @@
 
 - 📫 How to reach me **p.rodriguezgar@hotmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/p.rodriguezgar/](https://www.linkedin.com/in/p.rodriguezgar/)
+- 📄 Know about my experience in [prodriguezgar](https://www.linkedin.com/in/prodriguezgar/)
