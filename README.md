@@ -3,7 +3,7 @@
 
 - 👩‍🔬 Current: PhD student at University of Copenhagen, Denmark. Studying the role of the gut microbiome in human nutrition and energy extraction.
 
-- 👩‍💻 Previous: Senior Bioinformatician at [https://clinical-microbiomics.com](Clinical Microbiomics), a microbiome-research organization
+- 👩‍💻 Previous: Senior Bioinformatician at [Clinical Microbiomics](https://clinical-microbiomics.com), a microbiome-research organization
 
 - 😄 Pronouns: she/her
 
